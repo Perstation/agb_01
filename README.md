@@ -4,3 +4,4 @@
 애국뱃주소.com | https://xn--3e0bj5z82d6pecrf.com/
 애국뱃.com | https://xn--3e0bj5z6zg.com/
 애국벳평생.com | https://xn--3e0br30an7c6vfcxv.com/
+평생애국벳.com| https://xn--3e0br30al7c9vf7wv.com/
